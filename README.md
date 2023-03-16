@@ -1,1 +1,1 @@
-A lover of suffering bullshit
+ok.
